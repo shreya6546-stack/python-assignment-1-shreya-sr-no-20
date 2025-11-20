@@ -1,1 +1,6 @@
-# python-assignment-1-shreya-sr-no-20
+![8dec0bf0-6d52-4218-9ba6-e880e4f67d60](https://github.com/user-attachments/assets/1acd693b-eaac-438c-bb3e-ff39a7b65620)
+# python-assignment-1-shreya-sr-no-20![e63246d7-1dbf-46e2-9d27-448536be34d7](https://github.com/user-attachments/assets/62ada2c9-8fee-41d8-945f-a043f8336c8d)
+![e843d4ee-dee1-4ca1-808f-ef75f2431da9](https://github.com/user-attachments/assets/ed246050-2d65-4597-9b9a-3344ec17cbc1)
+![dbc7ed2e-0cba-43ab-89bb-7abde8be235e](https://github.com/user-attachments/assets/e1c8b233-ccf1-45af-add0-b9fefe64b487)
+![b3fbae02-5eec-4e77-8c7a-9f58a26956e7](https://github.com/user-attachments/assets/09466ea6-e238-49a8-aaa8-bfb79af390b7)
+![02585e2f-8290-45f2-9fc5-41466717f8ab](https://github.com/user-attachments/assets/9d5f26fd-5ab2-41b9-b61a-31f7a1016b6c)
